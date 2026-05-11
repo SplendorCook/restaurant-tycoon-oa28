@@ -1,4 +1,4 @@
-#  
+#  Experience restaurant tycoon 3 like never before with top Script for restaurant tycoon 3, the #1 Script. Includes god mode and invisibility for
 
 
 
